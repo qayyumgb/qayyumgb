@@ -55,7 +55,7 @@ I don't just build screens. I own features from UI to backend — fewer handoffs
 
 I'm available for freelance and contract work. If you need a developer who can own your project end to end, let's talk.
 
-- 💼 **Upwork:** [[Qayyum on Upwork](https://www.upwork.com/freelancers/~01ba0de86976da9266)]
+- 💼 **Upwork:** [Qayyum on Upwork](https://www.upwork.com/freelancers/~01ba0de86976da9266)
 - 🔗 **LinkedIn:** [Qayyum on LinkedIn](https://www.linkedin.com/in/ab-qayyum-97112511a)
 - 🏢 **SAUFIK Technologies**
 - 📍 Islamabad, Pakistan
