@@ -53,7 +53,7 @@ I don't just build screens. I own features from UI to backend — fewer handoffs
 
 ### 📫 Let's Work Together
 
-I'm available for freelance and contract work. If you need a developer who can own your project end to end, let's talk.
+Whether you need a developer for a freelance project, a contract, or a full-time remote role on your team — I'd be glad to talk. I take on work I can own from start to finish.
 
 - 💼 **Upwork:** [Qayyum on Upwork](https://www.upwork.com/freelancers/~01ba0de86976da9266)
 - 🔗 **LinkedIn:** [Qayyum on LinkedIn](https://www.linkedin.com/in/ab-qayyum-97112511a)
